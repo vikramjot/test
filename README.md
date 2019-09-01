@@ -1,4 +1,4 @@
 # test
-Vikramjot Singh Tamber
-Nu kujh nai andu
+Smarty Vikramjot Singh
+Nu bahut kujh anda
 Hun thoda thoda andu
