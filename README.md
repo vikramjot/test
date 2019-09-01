@@ -1,4 +1,4 @@
 # test
 Vikramjot Singh Tamber
-Nu kujh nai anda
+Nu kujh nai andu
 Hun thoda thoda andu
